@@ -21,7 +21,7 @@
 
 Rubbeln mit dem Handtuch, Brustwarzen „abhärten“, spezielle Übungen … 🙅‍♀️
 
-Diesen Tipp hören viele Schwangere immer noch. Die gute Nachricht: **Das brauchst du nicht.**
+Diesen Tipp hören viele Schwangere immer noch. Die gute Nachricht: Das brauchst du nicht.
 
 Deine Brust stellt sich schon in der Schwangerschaft durch Hormone auf das Stillen ein – ganz ohne dein Zutun.
 
