@@ -3,7 +3,7 @@
 **Thema:** 5 Still-Entscheidungen, die du vor der Geburt für dich klären kannst
 **Kategorie:** Stillen · **Ziel:** Problem lösen · **Priorität:** Hoch · **Speicher-Content:** Ja
 **CTA:** Still-Checkliste · Speichern
-**Account:** @stillen-leonberg
+**Account:** @stillen_leonberg
 
 ---
 
@@ -41,7 +41,7 @@
 **Slide 7 – CTA**
 > Speicher dir diesen Post 🔖
 > Alle Punkte zum Abhaken findest du in meiner **Still-Checkliste** – Link in Bio.
-> @stillen-leonberg
+> @stillen_leonberg
 
 ---
 

@@ -3,7 +3,7 @@
 **Thema:** Deine Brust muss sich nicht auf das Stillen „vorbereiten“
 **Kategorie:** Stillen · **Ziel:** Wissen · **Perspektive:** Mythos/Fakt · **Priorität:** Mittel
 **CTA:** Still-Checkliste
-**Account:** @stillen-leonberg
+**Account:** @stillen_leonberg
 
 ---
 

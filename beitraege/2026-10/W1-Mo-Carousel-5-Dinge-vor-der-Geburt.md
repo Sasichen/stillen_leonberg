@@ -3,7 +3,7 @@
 **Thema:** 5 Dinge, die du schon vor der Geburt über das Stillen wissen solltest – zum Speichern
 **Kategorie:** Stillen · **Ziel:** Wissen · **Priorität:** Hoch · **Speicher-Content:** Ja
 **CTA:** Still-Checkliste · Speichern
-**Account:** @stillen-leonberg
+**Account:** @stillen_leonberg
 
 ---
 
@@ -41,7 +41,7 @@
 **Slide 7 – CTA**
 > Speicher dir diesen Post 🔖
 > und hol dir meine **Still-Checkliste** für die ersten Tage – Link in Bio.
-> @stillen-leonberg
+> @stillen_leonberg
 
 ---
 
